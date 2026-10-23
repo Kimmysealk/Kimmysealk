@@ -2,6 +2,6 @@
 
 ## Cuntboy - KMFDM
 
+( dandys world corner on pt is HELL 
+<img width="1080" height="635" alt="eyebannerkaos" src="https://github.com/user-attachments/assets/df948c78-68c6-464a-a204-d3a77ece180b" />
 
-
-<img width="1080" height="635" alt="eyebannerkaos" src="https://github.com/user-attachments/assets/6d9efe3a-d8d2-4268-b462-f173e7b4928e" /
