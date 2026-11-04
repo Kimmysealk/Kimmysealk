@@ -13,7 +13,7 @@
                     idc if u c+h  
 just a little rant >>
 
-if you give the slightest sympathy to preds I gen do not fw you at all. I am not giving sympathy to someone that
+my take on preds>>  I am not giving sympathy to someone that
 wants to put kids in danger and have horrible thoughts of them, no matter what happened to them putting kids in danger
 is absolutely horrible and just because you went through something doesn't excuse it. I have gone through horrible shit too that has 
 effected my life heavily but I would never turn to like kids or even think about them like that. Don't get mad at me for giving the pred what they deserve, I'm not going to tolerate a person who is willing to put kids in danger and ruin their life. I don't care what your opinion is on this it's just absolutely sick for someone to do that and my way is not giving them sympathy because they don't deserve it
