@@ -2,7 +2,8 @@
 ![](https://komarev.com/ghpvc/?username=your-github-kaos)
 
 #kaoskin forevr
-<img width="2048" height="1078" alt="EC1E9A12-444C-4AC0-8F1A-7C5902A52296" src="https://github.com/user-attachments/assets/1241fa8f-4441-4593-bdef-b3b48f5b130e" />
+<img width="915" height="550" alt="Screenshot 2026-11-11 161242" src="https://github.com/user-attachments/assets/fb324ea5-7b03-4bab-ae99-533c97ccd774" />
+
 
                                      kaos- kimmy 
                                 kaos fictionkin ( funfact i am actually the first and the owners comfirmed of my kin hhahaha
