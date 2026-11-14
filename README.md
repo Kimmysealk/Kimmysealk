@@ -11,5 +11,5 @@
                               mio <3 
                         always free to talk unless something is going on
                       mainly listening to music so ask me what im listening to when u see me!
-                    idc if u c+h  
+                    idc if u c+h  / i love charomina half of my cosplays r from charomina
 im kaos btw like THE kaos heheehheh 
