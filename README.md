@@ -9,6 +9,7 @@
 
 mainly on the cliff or near spawn in pony town!! >> usaully always afk or just vibing and waiting for chit chat
 more 
+
 info on straw,
 
 ## - my fictionkin is so cool btw  / no i am not a christian nor is my kin he is quite literally a criminal working as a priest to cover up his crimes 
